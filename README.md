@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Alan Shi
+- 👀 I’m interested in basketball
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me: dm me
